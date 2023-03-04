@@ -1,4 +1,4 @@
-# Email Hadid Bella Manually Agsinst Depression
+# Email Hadid Bella Manually Against Depression
 
 This is a plan for me to email Hadid Bella against depression.
 
