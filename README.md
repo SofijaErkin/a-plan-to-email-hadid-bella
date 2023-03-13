@@ -12,6 +12,8 @@ This is a plan for me to email Hadid Bella against depression.
 
 4.[画像修正で失敗、炎上！　残念すぎるセレブたち](https://news.yahoo.co.jp/articles/cf9e7e89430049ac1310ef2f4a38639b81656b5a).
 
+5.[Scientific Evidence-Based Effects of Hydrotherapy on Various Systems of the Body(NIH)](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4049052/).
+
 ## News Key Words
 
 ### 1.One
@@ -115,3 +117,11 @@ note, it’s not going to be good for you.”
 うつと不安障害に苦しんでいることを告白したのは、
 
 写真の修正が明らかになってすぐのこと。セレブにとっては、大衆の鋭すぎる視線に晒されるのは相当なストレスのはず。
+
+### 4.0Four
+
+A study found that cold water therapy could increase plasma noradrenaline and
+
+dopamine concentrations up to 530% and 250%, respectively, while also
+
+decreasing cortisol levels by 17%.
