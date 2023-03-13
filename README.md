@@ -14,6 +14,8 @@ This is a plan for me to email Hadid Bella against depression.
 
 5.[Scientific Evidence-Based Effects of Hydrotherapy on Various Systems of the Body(NIH)](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4049052/).
 
+6.[Cold showers are a potent tool in alleviating depression and improving your focus(Medium)](https://betterhumans.pub/what-i-learned-from-5-years-of-cold-showers-that-i-didnt-after-a-year-4d170de0eaf4).
+
 ## News Key Words
 
 ### 1.One
@@ -125,3 +127,19 @@ A study found that cold water therapy could increase plasma noradrenaline and
 dopamine concentrations up to 530% and 250%, respectively, while also
 
 decreasing cortisol levels by 17%.
+
+Here’s why this is important to you — Noradrenaline is a neurotransmitter of
+
+the brain that plays an essential role in arousal, attention, cognitive
+
+function, and stress reactions. Dopamine aka the “Pleasure Hormone” is a
+
+neurotransmitter that is responsible for feelings of reward, pleasure, and
+
+attention. Cortisol, on the other hand, is responsible for regulating your
+
+stress response. High levels of cortisol are often correlated with chronic
+
+stress. The combined effects on multiple hormones show that cold showers are
+
+a potent tool in alleviating depression and improving your focus.
