@@ -16,6 +16,8 @@ This is a plan for me to email Hadid Bella against depression.
 
 6.[Cold showers are a potent tool in alleviating depression and improving your focus(Medium)](https://betterhumans.pub/what-i-learned-from-5-years-of-cold-showers-that-i-didnt-after-a-year-4d170de0eaf4).
 
+7.[The Only 4 Healthy Habits You Need to Follow According to a 99 Year Old(Medium)](https://medium.com/in-fitness-and-in-health/the-only-4-healthy-habits-you-need-to-follow-according-to-a-99-year-old-504f33082233).
+
 ## News Key Words
 
 ### 1.One
@@ -143,3 +145,17 @@ stress response. High levels of cortisol are often correlated with chronic
 stress. The combined effects on multiple hormones show that cold showers are
 
 a potent tool in alleviating depression and improving your focus.
+
+### 5.Five
+
+Mental health was the biggest reason for his fitness passion. A military job
+
+can wreck your mental peace but he discovered his solace in exercise.
+
+He believed in better mental health through actions.
+
+He helped me build mental resilience through my actions.
+
+One habit that he followed daily for better mental health was walking
+
+meditation.
