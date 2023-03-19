@@ -18,6 +18,8 @@ This is a plan for me to email Hadid Bella against depression.
 
 7.[The Only 4 Healthy Habits You Need to Follow According to a 99 Year Old(Medium)](https://medium.com/in-fitness-and-in-health/the-only-4-healthy-habits-you-need-to-follow-according-to-a-99-year-old-504f33082233).
 
+8.[6 Daily Choices That Keep Me Productive in Depressed Periods](https://medium.com/invisible-illness/6-daily-choices-that-keep-me-productive-in-depressed-periods-de36cde299d3).
+
 ## News Key Words
 
 ### 1.One
@@ -159,3 +161,21 @@ He helped me build mental resilience through my actions.
 One habit that he followed daily for better mental health was walking
 
 meditation.
+
+### 6.Six
+
+6 Daily Choices That Keep Me Productive in Depressed Periods. Navigating life
+
+with mental illness.
+
+1.Getting out of bed earlier;
+
+2.Reminding myself;
+
+3.Walk, walk, walk;;
+
+4.Staying out of my bedroom;
+
+5.Small wins;
+
+6.Finding tiny moments of joy.
