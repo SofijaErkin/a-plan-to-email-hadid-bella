@@ -20,6 +20,8 @@ This is a plan for me to email Hadid Bella against depression.
 
 8.[6 Daily Choices That Keep Me Productive in Depressed Periods](https://medium.com/invisible-illness/6-daily-choices-that-keep-me-productive-in-depressed-periods-de36cde299d3).
 
+9.[The Quality of Your Thoughts Determines the Quality of Your Life](https://medium.com/change-becomes-you/the-quality-of-your-thoughts-determines-the-quality-of-your-life-2402a053606f).
+
 ## News Key Words
 
 ### 1.One
@@ -179,3 +181,11 @@ with mental illness.
 5.Small wins;
 
 6.Finding tiny moments of joy.
+
+### 7.Seven
+
+Once you realize that thoughts pop in and out of your mind without your
+
+permission or will, you can let the negative-based ones go and choose to
+
+amplify the positive.
