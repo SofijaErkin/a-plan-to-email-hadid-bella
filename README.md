@@ -22,6 +22,8 @@ This is a plan for me to email Hadid Bella against depression.
 
 9.[The Quality of Your Thoughts Determines the Quality of Your Life](https://medium.com/change-becomes-you/the-quality-of-your-thoughts-determines-the-quality-of-your-life-2402a053606f).
 
+10.[20 Traits Of Highly Attractive Men](https://jamesmsama.medium.com/20-traits-of-highly-attractive-men-817de0688e4a).
+
 ## News Key Words
 
 ### 1.One
@@ -189,3 +191,19 @@ Once you realize that thoughts pop in and out of your mind without your
 permission or will, you can let the negative-based ones go and choose to
 
 amplify the positive.
+
+### 8.Eight
+
+The mental health struggles of men are vastly overlooked in modern society.
+
+Since the beginning of time, we’ve been told to “suck it up” and “man up,”
+
+pretending that emotions don’t exist.
+
+This has lead to an unfathomable level of suicides, mental health struggles,
+
+failed relationships, and identity crises.
+
+We must prioritize our mental health and ensure a healthy relationship with
+
+ourselves if we ever hope to have one with another person.
