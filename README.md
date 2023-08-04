@@ -26,6 +26,8 @@ This is a plan for me to email Hadid Bella against depression.
 
 11.[How to Feel Less Lonely: 7 Evidence-Based Ways to Reconnection](https://stephanjoppich.medium.com/how-to-feel-less-lonely-c7fdb8f19169).
 
+12.[「風俗街の病院」に勤める新人女医が驚愕…トイレから血まみれで出てきた14歳少女の「衝撃の姿」](https://news.yahoo.co.jp/articles/959cc91685907ebfaa8f144d16a4b8ff9b974271).
+
 ## News Key Words
 
 ### 1.One
@@ -233,3 +235,24 @@ You don’t have to write a novel. Journaling for 15–30 minutes in 3–5 sessi
 can already show tremendous benefits. And remember: it’s all for yourself.
 
 Completely private. Nobody — not even you — ever has to read what you wrote.
+
+### 10.Ten
+
+From Reference NEWS 12.
+
+田舎ではなかったが、「関東　治安が悪い」で調べると必ず出て来るような地域だった。立地のせいで、
+お給料は破格だった。
+
+表通りにまで風俗店が立ち並び、道には酔っ払いかホームレスか分からない人がいつも寝ている。
+しょっちゅう聞こえる喧嘩の怒鳴り声は明らかに日本語ではない。
+付近を拠点とするタクシー運転手は見たことのないほど荒い運転をする。
+
+患者層は当たり前に最悪で、理不尽なクレームも日常。
+患者が暴れた時のために病院に武術の黒帯が常駐しているくらいだった。医師の方も、
+ここまで立地を妥協してでもハイポ病院に来るような人材なのだから、精鋭とは言い難い。
+加えてモンスター患者にウンザリしているから、患者全体への扱いもよくなく、裏で悪口三昧は当たり前。
+そんな吹き溜まりのような、どんよりとした場所だった。
+
+そうして大学を卒業するまで、接するのは同じ医学生や医師がほとんどだ。
+貧困も暴力も犯罪も「お伽噺」としてしか知らないまま、
+いきなり人の不幸の煮詰まったような場所に投げ込まれる。
